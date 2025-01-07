@@ -1,1 +1,0 @@
-DAUP Activity - 1
